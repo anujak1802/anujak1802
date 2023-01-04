@@ -8,3 +8,4 @@
 - 📫 How to reach me: https://www.linkedin.com/in/anuja-kokate-786298213/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Daydreamer
+- 📖 Currently Reading- It Ends with Us- Collen Hover.
